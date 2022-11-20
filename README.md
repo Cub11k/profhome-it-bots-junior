@@ -8,4 +8,4 @@
 
 [Записи обучалок](https://youtube.com/playlist?list=PLz8jRJPQjKGUxwDV2sf2rfDyEubKouSz6)
 
-[Diagram example](https://drive.google.com/file/d/1XcEWSeTFd4lPywV3b4Za7mT3hF96M7bm/view?usp=sharing)
+[Diagram example](https://drive.google.com/file/d/1siRzsVqzjw4GMBulE021CRQh4v76PE3H/view?usp=sharing)
